@@ -1,1 +1,0 @@
-sync ke liye kare 
